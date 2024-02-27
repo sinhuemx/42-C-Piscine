@@ -6,6 +6,17 @@ Here I showcase my work in the pool, which includes a variety of references and 
 -- Sillicon Valley 2019 --
 
 
+
+-
+-
+-
+
+-
+
+
+-
+-
+-
 ## Carlos Sinhue Garcia Hernandez
 
 Computer Systems Analyst
